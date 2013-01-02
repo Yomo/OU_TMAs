@@ -1,0 +1,1 @@
+It is forbidden by The Open University regulations to use these assignment solutions in your own TMAs.
